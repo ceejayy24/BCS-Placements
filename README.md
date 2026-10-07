@@ -1,2 +1,2 @@
-[BSC Placements](http://countersink-glads.poseidon.salford.ac.uk/index.php)
+[BCS Placements](http://countersink-glads.poseidon.salford.ac.uk/index.php)
 -
